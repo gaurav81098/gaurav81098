@@ -9,6 +9,8 @@ Power BI, SQL, Excel (Advanced), Jamovi, SPSS, Python, and statistical modelling
 
 **How to reach me:**
 📧 gauravnikan1998@gmail.com
+
 📍 India ,Maharashtra
+
 🔗 LinkedIn (linkedin.com/in/gaurav-nikam-615907245)
 
